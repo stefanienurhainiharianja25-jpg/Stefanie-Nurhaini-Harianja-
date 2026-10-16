@@ -1,1 +1,0 @@
-# Stefanie-Nurhaini-Harianja-
